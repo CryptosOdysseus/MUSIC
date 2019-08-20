@@ -39,6 +39,9 @@ https://www.youtube.com/watch?v=ZUODnvmiwBU
 ### 2019 - Synthwave - Retrowave - Retro Electro Livestream
 https://www.youtube.com/watch?v=LUDEKMsxN0g
 
+### 2019 - 'MISSION' | Best of Synthwave And Retro Electro Music Mix
+https://www.youtube.com/watch?v=CcoO4XTCMDc
+
 ### 2019 - 'STRANGER' | A Synthwave Mix
 https://www.youtube.com/watch?v=HAqlSJnVt8E&list=RDIvWkgQ_r7Wk&index=11
 
@@ -60,11 +63,35 @@ https://www.youtube.com/watch?v=1Ny7vnWdoLc&list=RDIvWkgQ_r7Wk&index=4
 ### 2019 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix | Vol. 20
 https://www.youtube.com/watch?v=IvWkgQ_r7Wk
 
+### 2019 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix | Vol. 19
+https://www.youtube.com/watch?v=o6j8JuXg9pg
+
+### 2018 - 'SUPERNOVA' | Best of Synthwave And Retro Electro Music Mix for 1 Hour
+https://www.youtube.com/watch?v=SvwocU7Oct8
+
+### 2018 - 'PROJECT 6' | Best of Synthwave And Retro Electro Music Mix
+https://www.youtube.com/watch?v=2E7y5idDv-Q
+
 ### 2018  'DISTRICT 89' | Best of Synthwave And Retro Electro Music Mix
 https://www.youtube.com/watch?v=qWZL5RnfgtI&list=RDIvWkgQ_r7Wk&index=10
 
 ### 2018 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 16
 https://www.youtube.com/watch?v=XI5Bvplb7pQ&list=RDIvWkgQ_r7Wk&index=6
+
+### 2018 - 'OUTRUN' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 5
+https://www.youtube.com/watch?v=kRb41Joq-94
+
+### 2018 - 'OUTRUN' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 4
+https://www.youtube.com/watch?v=O8arvxHLeoc
+
+### 2018 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 15
+https://www.youtube.com/watch?v=tqVhELZaBvk
+
+### 2017 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 14
+https://www.youtube.com/watch?v=2ZCgFlMFNZE
+
+### 2017 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 13
+https://www.youtube.com/watch?v=SAgQ0r8luWA
 
 ### 2017 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 12
 https://www.youtube.com/watch?v=Pun1Nxv9f3g&list=RDIvWkgQ_r7Wk&index=7
@@ -80,6 +107,9 @@ https://www.youtube.com/watch?v=LLPoZGX0qZk&list=RDIvWkgQ_r7Wk&index=15
 
 ### 2017 - 'Best of Lost Years' | Best of Synthwave And Retro Electro Music Mix
 https://www.youtube.com/watch?v=bBrTt_C8b9c&list=RDIvWkgQ_r7Wk&index=13
+
+### 2017 - Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 2 Hours | Vol. 5
+https://www.youtube.com/watch?v=qk1nnAHI1mI
 
 ### 2016 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 2 Hours | Vol. 3
 https://www.youtube.com/watch?v=NHCgbs3TcYg
