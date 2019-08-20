@@ -1,40 +1,84 @@
-# **Music for Space-Based CLEADA ** 
-## **Computational Law, Ethically Aligned Designed, Digital Assets, Automated and Autonomous Legal Entities, and more**
+# Music for Space-Based CLEADA 
+## Computational Law, Ethically Aligned Designed, Digital Assets, Automated and Autonomous Legal Entities, and more
 
 #
 
-# **Ancient Electronic & Modern Trance**
+# CyberPunk & RetroElectro Groove
 
 #
 
-## **VANGELIS**
+## NEO TOKYO
 
-### **1976 - Vangelis – Albedo 0.39 Full Album**
+### 2019 - NEO TOKYO | Cyberpunk Mix (by Lucid Zen)
+https://www.youtube.com/watch?v=m65QTeKRWNg&pbjreload=10
+
+#
+
+## FORM
+
+### 2019 - FORM | Cyberpunk Mix
+https://www.youtube.com/watch?v=ZUODnvmiwBU
+
+#
+
+## RETRO ELECTRO COMPILATIONS BY ThePrimeThanatos
+
+### 2019 - Synthwave - Retrowave - Retro Electro Livestream
+https://www.youtube.com/watch?v=LUDEKMsxN0g
+
+### 2019 Back To The 80's' | Best of Synthwave And Retro Electro Music Mix | Vol. 21
+https://www.youtube.com/watch?v=1Ny7vnWdoLc&list=RDIvWkgQ_r7Wk&index=4
+
+### 2019 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix | Vol. 20
+https://www.youtube.com/watch?v=IvWkgQ_r7Wk
+
+### 2018 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 16
+https://www.youtube.com/watch?v=XI5Bvplb7pQ&list=RDIvWkgQ_r7Wk&index=6
+
+
+### 2019 'WANGAN RUN' | Best of Synthwave And Retro Electro Music Mix
+https://www.youtube.com/watch?v=Pz1a9MM-Vn4&list=RDIvWkgQ_r7Wk&index=2
+
+
+
+#
+
+
+
+
+
+# Ancient Electronic & Modern Trance
+
+#
+
+## VANGELIS
+
+### 1976 - Vangelis – Albedo 0.39 Full Album
 https://www.youtube.com/playlist?list=PL94gOvpr5yt3vwBE230Pt7FhEZRkptlA8
 
 #
 
-## **HANS ZIMMER**
+## HANS ZIMMER
 
-### **2015 - Hans Zimmer - Time ( Cyberdesign Remix )**
+### 2015 - Hans Zimmer - Time ( Cyberdesign Remix )
 https://www.youtube.com/watch?v=TsTFVdcpLrE
 
-### **2015 - Hans Zimmer - S.T.A.Y. (Madis Remix) Interstellar Theme**
+### 2015 - Hans Zimmer - S.T.A.Y. (Madis Remix) Interstellar Theme
 https://www.youtube.com/watch?v=Y9E4eSNNsrs
 
-### **2019 - Hans Zimmer - S.T.A.Y. (Madis Remix) (432hz) (Kira Sakura version)**
+### 2019 - Hans Zimmer - S.T.A.Y. (Madis Remix) (432hz) (Kira Sakura version)
 https://www.youtube.com/watch?v=64MKHybT1_A
 
 #
 
-## **JEAN-MICHEL JARRE**
+## JEAN-MICHEL JARRE
 
-### **1978 JEAN MICHEL JARRE EQUINOXE FULL REMASTER**
+### 1978 JEAN MICHEL JARRE EQUINOXE FULL REMASTER
 https://www.youtube.com/watch?v=k6B-YGQOLjs&pbjreload=10
 
 #
 
-## **ARMIN VAN BUREN**
+## ARMIN VAN BUREN
 
 ### **2019 Gaia - Moons of Jupiter**
 https://www.youtube.com/watch?v=hCuRnp-n-tA
