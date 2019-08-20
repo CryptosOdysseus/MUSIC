@@ -69,11 +69,29 @@ https://www.youtube.com/watch?v=XI5Bvplb7pQ&list=RDIvWkgQ_r7Wk&index=6
 ### 2017 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 12
 https://www.youtube.com/watch?v=Pun1Nxv9f3g&list=RDIvWkgQ_r7Wk&index=7
 
+### 2017 - 'OUTRUN' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 3
+https://www.youtube.com/watch?v=VuTf0oKgQxw
+
+### 2017 - 'OUTRUN' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 2
+https://www.youtube.com/watch?v=YvHcK1CaNW0
+
 ### 2017 - 'OUTRUN' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 1
 https://www.youtube.com/watch?v=LLPoZGX0qZk&list=RDIvWkgQ_r7Wk&index=15
 
 ### 2017 - 'Best of Lost Years' | Best of Synthwave And Retro Electro Music Mix
 https://www.youtube.com/watch?v=bBrTt_C8b9c&list=RDIvWkgQ_r7Wk&index=13
+
+### 2016 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 2 Hours | Vol. 3
+https://www.youtube.com/watch?v=NHCgbs3TcYg
+
+### 2016 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 2 Hours | Vol. 2
+https://www.youtube.com/watch?v=FLqbPS8-wBw
+
+### 2016 - Best of Synthwave And Retro Electro Music Mix | Mega Drive - 198XAD
+https://www.youtube.com/watch?v=G76MZcreat4
+
+
+
 
 
 
