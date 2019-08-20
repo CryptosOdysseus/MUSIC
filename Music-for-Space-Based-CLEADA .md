@@ -20,6 +20,31 @@ https://www.youtube.com/watch?v=gQmeymWD_vY&t=29s
 
 #
 
+## BLADE RUNNER
+
+### 1982 - BLADE RUNNER: MUSIC FROM THE MOTION PICTURE FULL ALBUM
+https://www.youtube.com/watch?v=IKuPk6niKOg
+
+### 1982 - Vangelis - Blade Runner Soundtrack (Remastered 2017)
+https://www.youtube.com/watch?v=k3fz6CC45ok&t=1987s
+
+### 2016 - The Future of 2049 - Space Ambient - Blade Runner 2049 Unofficial Sound Track
+https://www.youtube.com/watch?v=N4DiGe6nOuY&t=34s
+
+### 2017 - MIXED: Blade Runner 2049 Original Motion Picture Soundtrack (Hans Zimmer & Benjamin Wallfisch)
+https://www.youtube.com/watch?v=nf0llz_Rfd0
+
+### 2018 - Hans Zimmer & Benjamin Wallfisch (Blade Runner 2049) — Sea Wall (Arranged & Extended)
+https://www.youtube.com/watch?v=z2LOX74WPWo
+
+### 2018 - Blade Runner - Ambient for sleeping (rain)
+https://www.youtube.com/watch?v=llDMztU5JGk
+
+### 2019 - Blade Runner Blues - Rain 8 Hours
+https://www.youtube.com/watch?v=ypJHCm0Omao&t=6382s
+
+# 
+
 ## NEO TOKYO
 
 ### 2019 - NEO TOKYO | Cyberpunk Mix (by Lucid Zen)
@@ -72,6 +97,9 @@ https://www.youtube.com/watch?v=dpb1nk-2w88
 ### 2018 - 'Back To The 80's' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 17
 https://www.youtube.com/watch?v=Uam3DjjCad4
 
+### 2018 - Neo Tōkyō | Best of Synthwave And Retro Electro Music Mix
+https://www.youtube.com/watch?v=9kLPIqxrglg
+
 ### 2018 - 'Geisha' | Best of Synthwave And Retro Electro Music Mix
 https://www.youtube.com/watch?v=iVm0ofomMXM
 
@@ -122,6 +150,9 @@ https://www.youtube.com/watch?v=YvHcK1CaNW0
 
 ### 2017 - 'OUTRUN' | Best of Synthwave And Retro Electro Music Mix for 1 Hour | Vol. 1
 https://www.youtube.com/watch?v=LLPoZGX0qZk&list=RDIvWkgQ_r7Wk&index=15
+
+### 2017 - Best of Turbo Knight' | Best of Synthwave And Retro Electro Music Mix
+https://www.youtube.com/watch?v=OxXeaTE0R7U
 
 ### 2017 - 'Best of Lost Years' | Best of Synthwave And Retro Electro Music Mix
 https://www.youtube.com/watch?v=bBrTt_C8b9c&list=RDIvWkgQ_r7Wk&index=13
