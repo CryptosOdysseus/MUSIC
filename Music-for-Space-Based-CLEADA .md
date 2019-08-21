@@ -12,6 +12,12 @@
 ### 2016 - Epic Space Music Mix | Most Beautiful & Emotional Music | SG Music
 https://www.youtube.com/watch?v=icgGyR3iusU
 
+### 2017 - INFINITY - Epic Futuristic Music Mix | Atmospheric Sci-Fi Music
+https://www.youtube.com/watch?v=4F7sdy2rZws
+
+### 2018 - STARLESS SKY - Best Of Epic Music Mix | Powerful Beautiful Orchestral Music | Twelve Titans Music
+https://www.youtube.com/watch?v=XU8iCAxAsH4
+
 #
 
 # CyberPunk & RetroElectro Groove
