@@ -20,6 +20,34 @@ https://www.youtube.com/watch?v=XU8iCAxAsH4
 
 #
 
+# CypherPunk
+
+#
+
+## BEN PRUNTY
+
+### 2016 - Cypherpunk
+https://www.youtube.com/watch?v=2vwSeUxYQkg
+
+### 2016 - Ben Prunty Music - Cipher: the Score for Banking on Bitcoin - full album
+https://www.youtube.com/watch?v=SNW_xpVGirY
+
+#
+
+## THE ACOLYTE
+
+### 2016 - The Acolyte - Cypherpunk
+https://www.youtube.com/watch?v=m9wHf36mGQU
+
+#
+
+## CYPHERPUNK ROULETTE
+
+### 2015 - Cypherpunk Roulette - Sun and Sail Club
+https://www.youtube.com/watch?v=zI-EpDkAiaQ
+
+#
+
 # CyberPunk & RetroElectro Groove
 
 #
