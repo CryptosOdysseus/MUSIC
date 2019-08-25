@@ -1,5 +1,7 @@
 # "Another Block In The Chain"
 
+#
+
 ## We don't need no regulation
 
 ## We don't need no code control
@@ -40,5 +42,7 @@
 
 #
 
-### Reference: Pink Floyd - Another Brick In The Wall (HQ) https://www.youtube.com/watch?v=YR5ApYxkU-U
-
+### Reference: Pink Floyd - Another Brick In The Wall (HQ): 
+### https://www.youtube.com/watch?v=YR5ApYxkU-U
+### Extended "Helicopter Version": 
+### https://www.youtube.com/watch?v=ufWNjfdAFYQ
