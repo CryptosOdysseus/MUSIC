@@ -64,5 +64,7 @@
 
 #
 
-#### The Paul McCartney original version “Live and Let Die”  is widely known. Here’s the Gun’n’Roses version:
-https://www.youtube.com/watch?v=6D9vAItORgE
+### References: Paul McCartney & The Wings' original version of “Live and Let Die”: 
+### https://www.youtube.com/watch?v=JK2hKzZss5Y
+### Gun’n’Roses' version of "Live and Let Die" (lyrics unchanged):
+### https://www.youtube.com/watch?v=6D9vAItORgE
