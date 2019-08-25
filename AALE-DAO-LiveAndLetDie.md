@@ -39,7 +39,7 @@
 
 #
 
-#(Chorus)
+# (Chorus)
 
 #
 
