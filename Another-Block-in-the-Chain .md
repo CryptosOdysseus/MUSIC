@@ -46,3 +46,6 @@
 ### https://www.youtube.com/watch?v=YR5ApYxkU-U
 ### Extended "Helicopter Version": 
 ### https://www.youtube.com/watch?v=ufWNjfdAFYQ
+
+#### Remark: when it came out, this Pink Floyd song (associated with the movie The Wall) wasn't a statement against education or schools, it was an artistic manifesto about a certain education mindset and school system.
+#### Analogously, this parody isn't a statement against regulation or regulatory systems, it is a parodic manifesto about a certain regulation mindset and regulatory approach.
